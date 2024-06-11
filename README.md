@@ -1,4 +1,4 @@
-# Mfumu Wealth Mabunda Portfolio
+# James James-Ude Project Portfolio
 
 ## Project Overview
 
